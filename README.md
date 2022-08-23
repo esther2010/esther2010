@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @esther2010
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning at home, online.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me -ayomidetalks@gmail.com
 
